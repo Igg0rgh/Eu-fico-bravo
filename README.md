@@ -7,5 +7,8 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 Você pode entrar em contato comigo 📫
 alurastartestudante@email.com
 
-![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fzabalbike.com.br%2Fproduto%2Fpecas%2Fquadros%2Fquadro-hupi-naja-v8-gancheira-vertical-preto-e-dourado%2F&psig=AOvVaw2Gx5FFK5iJxo3GIzfCcM3Y&ust=1723835298180000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCJCy4obZ94cDFQAAAAAdAAAAABAE
-)
+![](https://zabalbike.com.br/wp-content/uploads/2024/03/e11eb8bd949ed22b7de56b2f7d03902f.jpg)
+
+
+![](link)
+
